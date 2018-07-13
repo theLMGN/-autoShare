@@ -4,6 +4,8 @@
 
 **"yeah put that as tagline" -- dagames**
 
+**"it works on mak so idrc" -- 👖**
+
 
 basically sharex no worky on mac rite
 
