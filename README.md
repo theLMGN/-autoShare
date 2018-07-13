@@ -1,5 +1,10 @@
 # autoShare
 
+**"it's shit but it works" -- sam red computer**
+
+**"yeah put that as tagline" -- dagames**
+
+
 basically sharex no worky on mac rite
 
 
